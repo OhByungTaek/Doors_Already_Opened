@@ -17,12 +17,13 @@ VR을 활용한 8번출구 라이크 장르의 실험실 탈출 게임
 
 #### ⬇️ 참고 자료 ⬇️
 
-[[![MYH](https://www.canva.com/design/DAGIt05A6Q0/V7XalaElOBzPECX8ZhwLbw/edit)](https://www.canva.com/design/DAGIt05A6Q0/V7XalaElOBzPECX8ZhwLbw/edit)]
+[당시 발표 자료]![asd](https://github.com/user-attachments/assets/0da6828c-327d-47f1-a28c-6cc7dc1d0bb9)(https://www.canva.com/design/DAGIt05A6Q0/V7XalaElOBzPECX8ZhwLbw/edit)]
 
-#### ⬇️ 참고 영상 ⬇️
+#### ⬇️ 참고 영상 ⬇️![asd](https://github.com/user-attachments/assets/0da6828c-327d-47f1-a28c-6cc7dc1d0bb9)
+
 <br>
 
-[[![MYH](http://img.youtube.com/vi/9Gf8VeshwNc/0.jpg)](https://youtu.be/OmX02w6bPRU)]
+[[![MYH]()](https://youtu.be/B_us0nNWA9c)]
 
 ## 3. 기믹 설명
 
