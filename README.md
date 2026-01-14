@@ -17,7 +17,7 @@ VR을 활용한 8번출구 라이크 장르의 실험실 탈출 게임
 
 #### ⬇️ 참고 자료 ⬇️
 
-[당시 발표 자료](https://www.canva.com/design/DAGIt05A6Q0/V7XalaElOBzPECX8ZhwLbw/edit)]
+[[당시 발표 자료](https://www.canva.com/design/DAGIt05A6Q0/gifkAzEnTEx7866ty1levQ/view?utm_content=DAGIt05A6Q0&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h3a29342dff)]
 
 <br>
 <br>
