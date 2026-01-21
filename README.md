@@ -28,5 +28,4 @@ VR을 활용한 8번출구 라이크 장르의 실험실 탈출 게임
 
 [[![asd](https://github.com/user-attachments/assets/0da6828c-327d-47f1-a28c-6cc7dc1d0bb9)](https://youtu.be/B_us0nNWA9c)]
 
-## 3. 기믹 설명
 
